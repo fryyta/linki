@@ -1,0 +1,2 @@
+# linki
+do infaonly
